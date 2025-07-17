@@ -1,4 +1,3 @@
 -  Hi, I’m Bhuwan Awasthi
 -  I’m interested in prediction (hazards)
--  I’m looking to collaborate on anything I could do...
 -  How to reach me: mebhuwanawasthi@gmail.com.../ st125724@ait.asia
