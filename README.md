@@ -1,3 +1,3 @@
 -  Hi, I’m Bhuwan Awasthi
--  I’m interested in prediction (hazards)
+-  I’m interested in predictions both scientifically and spiritually!
 -  How to reach me: mebhuwanawasthi@gmail.com.../ st125724@ait.asia
