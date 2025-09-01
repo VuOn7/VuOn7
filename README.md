@@ -1,3 +1,3 @@
--  Hi, I’m Bhuwan Awasthi
--  I’m interested in predictions both scientifically and spiritually!
--  How to reach me: mebhuwanawasthi@gmail.com.../ st125724@ait.asia
+Hi, I'm Bhuwan Awasthi
+- I'm passionate about prediction through both scientific analysis and spiritual insight
+- Reach me at: mebhuwanawasthi@gmail.com / st125724@ait.asia
